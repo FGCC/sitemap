@@ -23,4 +23,6 @@ Sugestões são muito bem-vindas! Se você tiver ideias para novas funcionalidad
 
 Obrigado por utilizar este projeto! Espero que ele ajude você a conquistar sua liberdade financeira.
 
-[www.darf6015.com.br](https://www.darf6015.com.br)
+[Imposto de Renda na Bolsa de Valores](https://www.darf6015.com.br)
+[Cotações das Bolsas Mundiais em Tempo Real](https://www.darf6015.com.br/cotacoes-bolsas-mundiais-em-tempo-real/))
+
